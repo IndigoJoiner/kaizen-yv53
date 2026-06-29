@@ -1,4 +1,4 @@
-#  
+#  best kaizen Script is the best kaizen Script, featuring custom skins and infinite resources. Safe and powerful for all your needs.
 
 
 
